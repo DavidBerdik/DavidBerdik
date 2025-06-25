@@ -12,3 +12,4 @@ If you're hiring and looking for someone with diverse experience and a desire to
 - [LinkedIn](https://www.linkedin.com/in/DavidBerdik)
 - [Google Play](https://play.google.com/store/apps/dev?id=4705321759548026439)
 - [Google Scholar](https://scholar.google.com/citations?user=H6PSXugAAAAJ)
+- [Rate My Professor](https://www.ratemyprofessors.com/professor/2882305)
